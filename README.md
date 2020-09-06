@@ -1,4 +1,4 @@
-### Heyy, I'm Vishwa  👋
+### Hey, I'm Vishwa  👋
 
 
 Checkout my repos ⤵️
